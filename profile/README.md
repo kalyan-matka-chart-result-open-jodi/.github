@@ -22,7 +22,15 @@
 
 कल्याण मटका एक प्रकार का सट्टा खेल है, जिसमें विभिन्न नंबरों के आधार पर लोग अपना दांव लगाते हैं। इसमें समय-समय पर परिणाम बदलते रहते हैं, और हर परिणाम का अपना एक निश्चित पैटर्न होता है। कल्याण मटका चार्ट में यह पैटर्न और परिणाम दर्शाए जाते हैं, जिससे खिलाड़ियों को भविष्यवाणी करने में मदद मिलती है।  
 
-यह चार्ट न केवल अनुभवी खिलाड़ियों के लिए, बल्कि नए खिलाड़ियों के लिए भी महत्वपूर्ण होता है, क्योंकि इसमें पहले के सभी परिणामों का रिकॉर्ड होता है। इससे उन्हें यह समझने में मदद मिलती है कि किसी विशेष समय या दिन के दौरान परिणामों में कोई विशेष ट्रेंड या पैटर्न होता है या नहीं।  
+यह चार्ट न केवल अनुभवी खिलाड़ियों के लिए, बल्कि नए खिलाड़ियों के लिए भी महत्वपूर्ण होता है, क्योंकि इसमें पहले के सभी परिणामों का रिकॉर्ड होता है। इससे उन्हें यह समझने में मदद मिलती है कि किसी विशेष समय या दिन के दौरान परिणामों में कोई विशेष ट्रेंड या पैटर्न होता है या नहीं। 
+
+1. [sridevi night chart open jodi result](https://github.com/sridevi-night-chart-open-jodi-result)
+2. [Satta Matka Result Kalyan Final Ank](https://github.com/Satta-Matka-Result-Kalyan-Final-Ank/)
+3. [satta matka king kalyan main bazar ank](https://github.com/satta-matka-king-kalyan-main-bazar-ank/)
+4. [rajdhani night chart result jodi-panel](https://github.com/rajdhani-night-chart-result-jodi-panel)
+5. [milan night chart result open jodi](https://github.com/milan-night-chart-result-open-jodi)
+6. [kalyan matka chart result open jodi](https://github.com/kalyan-matka-chart-result-open-jodi)
+7. [SATTA KING 2025 CHART RESULT](https://github.com/SATTA-KING-2025-CHART-RESULT)
 
 ---
 
